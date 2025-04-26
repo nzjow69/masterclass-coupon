@@ -261,3 +261,9 @@ No, MasterClass does not offer a monthly billing option.
 ### Can I Get a Free MasterClass subscription?
 
 No, MasterClass does not offer a free subscription. However, you can take advantage of its 30-day money-back guarantee. If you are not satisfied with your subscription, you can raise a refund request on MasterClass within 30 days of the purchase.
+
+**More Deals**
+
+* [Masterclass coupon](https://github.com/nzjow69/masterclass-coupon)
+* [Mindvalley coupon](https://github.com/nzjow69/mindvalley-coupon)
+* [Udacity coupon](https://github.com/nzjow69/Udacity-coupon-code)
