@@ -264,6 +264,5 @@ No, MasterClass does not offer a free subscription. However, you can take advant
 
 **More Deals**
 
-* [Masterclass coupon](https://github.com/nzjow69/masterclass-coupon)
 * [Mindvalley coupon](https://github.com/nzjow69/mindvalley-coupon)
 * [Udacity coupon](https://github.com/nzjow69/Udacity-coupon-code)
