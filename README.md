@@ -25,7 +25,7 @@ With this MasterClass discount get access to:
 * 👉 Downloadable Resources: Download learning material to learn even when you are offline.
 * 👉 Multi-Device Access: Learn on desktop, mobile, and smart TVs anytime, anywhere.
 
-# MasterClass Mother Day Offer | Get 50% Discount
+## MasterClass Mother Day Offer | Get 50% Discount
 Get **[50% off](https://www.masterclass.com/)** on MasterClass with this special mother's day offer, save up to $199/year on the premium plan.
 
 Hurry! Grab this offer now befor it ends. Click the button below now!
