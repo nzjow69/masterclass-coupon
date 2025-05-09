@@ -76,15 +76,20 @@ Yes, you heard it correctly now get a [30-day free trial](https://www.masterclas
 
 ## Get 2-for-1 on MasterClass – Limited-Time Offer! [Expired]
 
-MasterClass [2-for-1 offer](https://www.masterclass.com/) is an occasional event that the platform runs annually, in this MasterClass buy one, share one free offer you had to purchase one membership then you will get another one for free.
+MasterClass [**2-for-1 offer**](https://www.masterclass.com/) is an occasional event that the platform runs annually, in this MasterClass buy one, share one free offer you had to purchase one membership then you will get another one for free.
 
-![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcg-2JkMxcz4mJrfSvYgVUg9nsGBW8qosxoyZ6PmyVQcm1Eo91lHDflKNbni4ZE0ek_WKfMKOL8mD3yx7IsKjd3S66nknhIlCo9nCko9IFEFhjbd-LFjJUv0GG316vxg-XzM5kawg?key=ss3SuzBixKIcXGKM2szuDLCN)
-
-![|624x343](https://lh7-rt.googleusercontent.com/docsz/AD_4nXf_-ojv4c83MnWhzzlvmn63vsVX8mfWlVxJHhz8Zr1kygwsW5y3WKxb0GeRLP6nSeOvKPZEEwEOu7is5G8om4afI_cVVxElnBaM27RXWH0aeIDmC3ZVNTrDIpk2nml_4l4_5Z73?key=ss3SuzBixKIcXGKM2szuDLCN)
+[![|624x343](https://lh7-rt.googleusercontent.com/docsz/AD_4nXf_-ojv4c83MnWhzzlvmn63vsVX8mfWlVxJHhz8Zr1kygwsW5y3WKxb0GeRLP6nSeOvKPZEEwEOu7is5G8om4afI_cVVxElnBaM27RXWH0aeIDmC3ZVNTrDIpk2nml_4l4_5Z73?key=ss3SuzBixKIcXGKM2szuDLCN)
+](https://www.masterclass.com/)
 
 Later you can share it with anyone and cut the cost in half.
 
 The MasterClass BOGO offer will go live soon keep visiting its official site to stay updated on the deal or you can bookmark this page as we frequently update all the discounts on MasterClass.
+
+## MasterClass Student Discount | Get 35% Off
+Grab **[35% off](https://www.masterclass.com/)**, MasterClass understands the struggle of students thus giving you chance to save up to $150 yearly on your subscription.
+
+[![masterclass student discount](https://github.com/user-attachments/assets/008b691d-441a-4932-8bb2-a0e470c7abee)
+](https://www.masterclass.com/)
 
 ## Active Masterclass Coupon Code 2025
 
@@ -95,6 +100,7 @@ The MasterClass BOGO offer will go live soon keep visiting its official site to 
 |MasterClass Promo Code – Save $120 on the Premium Plan|$120 off on the Premium plan, allowing access for up to 6 users.|Grab $120 Off|
 |MasterClass Deal – Just $10/Month|Standard MasterClass subscription at just $10 per month.|Subscribe for $10/Month|
 |MasterClass Free Trial – 30 Days|Enjoy a 30-day free trial with full access to all courses.|Start Free Trial|
+|Art masterclass coupon|Get 30% off on the huge art teaching library|Get now!|
 
 ## How To Claim MasterClass Coupons?
 
