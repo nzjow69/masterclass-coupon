@@ -95,12 +95,12 @@ Grab **[35% off](https://www.masterclass.com/)**, MasterClass understands the st
 
 |MasterClass Offer|Savings Amount|CTA|
 | --- | --- | --- |
-|MasterClass Discount – Save $168 (Site-Wide)|$168 off with an annual subscription.|Claim Savings Now|
-|MasterClass Coupon Code – Save $30 on Duo Plan|Get $30 off when you share a Plus membership.|Get $30 Off|
-|MasterClass Promo Code – Save $120 on the Premium Plan|$120 off on the Premium plan, allowing access for up to 6 users.|Grab $120 Off|
-|MasterClass Deal – Just $10/Month|Standard MasterClass subscription at just $10 per month.|Subscribe for $10/Month|
-|MasterClass Free Trial – 30 Days|Enjoy a 30-day free trial with full access to all courses.|Start Free Trial|
-|Art masterclass coupon|Get 30% off on the huge art teaching library|Get now!|
+|MasterClass Discount – Save $168 (Site-Wide)|$168 off with an annual subscription.|[Claim Savings Now](https://www.masterclass.com/)|
+|MasterClass Coupon Code – Save $30 on Duo Plan|Get $30 off when you share a Plus membership.|[Get $30 Off](https://www.masterclass.com/)|
+|MasterClass Promo Code – Save $120 on the Premium Plan|$120 off on the Premium plan, allowing access for up to 6 users.|[Grab $120 Off](https://www.masterclass.com/)|
+|MasterClass Deal – Just $10/Month|Standard MasterClass subscription at just $10 per month.|[Subscribe for $10/Month](https://www.masterclass.com/)|
+|MasterClass Free Trial – 30 Days|Enjoy a 30-day free trial with full access to all courses.|[Start Free Trial](https://www.masterclass.com/)|
+|Art masterclass coupon|Get 30% off on the huge art teaching library|[Get now!](https://www.masterclass.com/)|
 
 ## How To Claim MasterClass Coupons?
 
