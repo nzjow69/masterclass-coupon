@@ -12,7 +12,7 @@ Let’s dive in and grab your favorite Masterclass discount code.
 
 ## MasterClass Discount | Get 70% Off (Site-Wide)
 
-Get a whopping [70% off](https://www.masterclass.com/) site-wide with this MasterClass discount code if you go with the annual subscription.
+Get a whopping [**70% off**](https://www.masterclass.com/) site-wide with this MasterClass discount code if you go with the annual subscription.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdL0F9ldXSizYMy6nxTO_wqBTMwFcCRBdjZmucEY_TV62Q0TOOz94soN_Efa_TeeFfNIkjta6q8KmFsSrneH2ieeqaL8dezM4FB0PuklK9mv1YRMDTySlKcEpbWS2ekUlenqXkBlg?key=ss3SuzBixKIcXGKM2szuDLCN)](https://www.masterclass.com/)
 
@@ -24,6 +24,14 @@ With this MasterClass discount get access to:
 * 👉 Self-Paced Learning: Learn in bits and sizes with Master Class Short, structured lessons that fit your schedule.
 * 👉 Downloadable Resources: Download learning material to learn even when you are offline.
 * 👉 Multi-Device Access: Learn on desktop, mobile, and smart TVs anytime, anywhere.
+
+# MasterClass Mother Day Offer | Get 50% Discount
+Get **[50% off](https://www.masterclass.com/)** on MasterClass with this special mother's day offer, save up to $199/year on the premium plan.
+
+Hurry! Grab this offer now befor it ends. Click the button below now!
+
+[![Masterclass mothers day offer](https://github.com/user-attachments/assets/f319c1ce-5d59-457d-8da0-f878f4a64560)
+](https://www.masterclass.com/)
 
 ## MasterClass Coupon Code - 15% Duo Offer
 
